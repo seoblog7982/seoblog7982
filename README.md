@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @seoblog7982
-- 👀 I’m interested in ...
+- 👀 I’m listening online radio at [noizeradio](https://noizeradio.gr)
 - 🌱 I’m currently learning WordPress at [БГ Вести](https://bgvesti.eu)
 - 💞️ I’m looking to collaborate on [toratora](https://toratora.gr)
 - 📫 How to reach me [Актуално](https://actualnobg.info)
